@@ -18,11 +18,11 @@
     - Minimalist / Atmospheric / Peaceful presence
     - Sensitive / Melancholic / Emotionally rich
 
-Yuna is not a real person — she is a **character**, a **persona**, and a **living symbol** of my creative identity.
+🌸 Author note: *"Yuna is not a real person — she is a **character**, a **persona**, and a **living symbol** of my creative identity.
 She exists where imagination, aesthetics, and emotion meet.
-Through her, I can express feelings, moods, and ideas that don't always fit into everyday life.
+Through her, I can express feelings, moods, and ideas that don't always fit into everyday life."*
 
-Yuna represents the soft, introspective, and creative parts of my digital world — the side of me that loves anime, aesthetics, and calm spaces.
+*"Yuna represents the soft, introspective, and creative parts of my digital world — the side of me that loves anime, aesthetics, and calm spaces."*
 
 ## 🌙 Name & Identity
 Her name is written as 天音 優奈 (Amane Yuna), a combination that reflects her essence:
